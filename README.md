@@ -1,4 +1,6 @@
-i know my icon's artist is problematic. genuinely don't give a fuck, i'm problematic myself by virtue of being a HABIT. i don't have to like someone or agree with them to like their art. okay? okay  
+I'M AWARE THAT MY ICON'S ARTIST IS PROBLEMATIC. GEEENUINELY DON'T GIVE A FUCK, I'M 'PROBLEMATIC' MYSELF BY VIRTUE OF BEING A HABIT. I DON'T HAVE TO LIKE SOMEONE OR AGREE WITH THEM TO LIKE THEIR ART. OKAY? OKAY.  
 
-# I'M A SUBSYSTEM OF MALICITORS DON'T EXPECT ME TO ADHERE TO YOUR MORALS. I'M A NASTY THING. I SAY AND DO NASTY THINGS.  
-hi this thing's a big wip
+## I'M A SUBSYSTEM OF MALICITORS. DON'T EXPECT ME TO ADHERE TO YOUR MORALS.  
+## I'M A NASTY THING. I SAY AND DO NASTY THINGS.  
+  
+THIS THING'S A BIG WIP, EXERCISE PATIENCE
